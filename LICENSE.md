@@ -1,4 +1,4 @@
-
+ink game Script ultimate is the best ink game Script, featuring auto-heal and instant win. Safe and powerful for all your needs.
 
 
 
